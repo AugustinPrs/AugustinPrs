@@ -1,0 +1,6 @@
+- 👋 Bonjour, je suis @AugustinPrs
+- 👀 Je m'interesse au JavaScript
+- 🌱 J'ai 17 ans
+- 💞️ Mon discord Support : https://dsc.gg/support.bot.discord
+- 💞️ Mon discord Minecraf : https://dsc.gg/lunarium.project
+- 📫 Mon bot Discord : https://dsc.gg/kirua.bot
